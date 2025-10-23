@@ -11,7 +11,7 @@ Hii Guys 👋
  
  🤔 I’m looking for help with ...
  
- 💬 Ask me about ...
+ 💬 Ask me about Anything ...
  
  📫 How to reach me: 
  
@@ -21,5 +21,5 @@ Hii Guys 👋
  
  😄 Pronouns: 
  
- ⚡ Fun fact: ...
+ ⚡ Fun fact: Nothing
 
